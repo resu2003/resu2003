@@ -19,7 +19,7 @@
 - I aim to leverage technology to improve security measures, solve real-world problems, and contribute effectively to organizational security.
 - 📫 How to reach me **resupraneeth@gmail.com**
 - 📄 Know about my experiences: <br>
-[https://drive.google.com/file/d/15Mt2jFdTOK8awmvKErhF-V06qVmCCSv0/view?usp=drive_link](https://drive.google.com/file/d/15Mt2jFdTOK8awmvKErhF-V06qVmCCSv0/view?usp=drive_link)
+[Resume](https://drive.google.com/file/d/15Mt2jFdTOK8awmvKErhF-V06qVmCCSv0/view?usp=drive_link)
 </h3>
 <br>
 <p align="center">
